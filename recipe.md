@@ -1,0 +1,1 @@
+cut the patatoe then boil it and frie it and then put the salt and the seasoning

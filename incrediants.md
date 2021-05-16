@@ -1,0 +1,1 @@
+patatoe,salt,oil,seasoning
